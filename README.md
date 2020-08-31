@@ -1,0 +1,1 @@
+# OSS2020PACESTALLIONS A spreadsheet that includes 2020 OSS and NYSS pace stallions. Who they are sires by and then the main cross on top and bottom. Extra info and twists. I like to use this cross chart to analyse stride and racing mannerisms and also potential breeding fits.
